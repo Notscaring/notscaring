@@ -1,4 +1,4 @@
-## Hi there 👋
+##### ૮ • ﻌ - ა ~ ▬̸̎͞/̄͆̅ ̎ ̎͞ ͞͞͞ι̚━─— 
 
 <!--
 **Notscaring/notscaring** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
